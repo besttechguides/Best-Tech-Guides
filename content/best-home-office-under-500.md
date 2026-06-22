@@ -10,23 +10,23 @@ Creating a productive, ergonomic home office doesn't have to break the bank. Wit
 
 ## Our Top Budget-Friendly Picks
 
-### 1. Ergonomic Office Chair: [Link to Amazon/Affiliate]
+### 1. Ergonomic Office Chair: [SIHOO Ergonomic Office Chair](https://amzn.to/4vAv3VJ)
 The cornerstone of any office. Look for lumbar support and breathable mesh back. 
 *Price: ~$150*
 
-### 2. Adjustable Standing Desk Converter: [Link to Amazon/Affiliate]
+### 2. Adjustable Standing Desk Converter: [VIVO Standing Desk Converter](https://amzn.to/43MAC7p)
 If you can't afford a full standing desk, a converter is the perfect ergonomic compromise.
 *Price: ~$120*
 
-### 3. Mechanical Keyboard: [Link to Amazon/Affiliate]
+### 3. Mechanical Keyboard: [Keychron C1 Wired Mechanical Keyboard](https://amzn.to/44uvjJP)
 Tactile feedback reduces strain and improves typing speed. 
 *Price: ~$60*
 
-### 4. Vertical Ergonomic Mouse: [Link to Amazon/Affiliate]
+### 4. Vertical Ergonomic Mouse: [Logitech Lift Vertical Ergonomic Mouse](https://amzn.to/4w4auRd)
 Crucial for preventing wrist pain during long hours.
 *Price: ~$40*
 
-### 5. Desk Lighting & Accessories: [Link to Amazon/Affiliate]
+### 5. Desk Lighting & Accessories: [Quntis Computer Monitor Light Bar](https://amzn.to/4eVo3wG)
 Good lighting is essential to reduce eye strain.
 *Price: ~$30*
 
